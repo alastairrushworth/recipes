@@ -10,7 +10,7 @@
 - 285g butter
 - 285g soft brown sugar
 - 6 eggs (beaten)
-- 4 btsps brandy
+- 4 tbsps brandy
 - rind grated from 1/2 lemon
 - 1/2 tsp mixed spice
 - 1/2 tsp ground cinnamon
