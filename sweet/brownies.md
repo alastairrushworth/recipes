@@ -7,7 +7,7 @@
 - 60g butter
 - 100g sugar
 - 2 eggs
-- 125g hazelnuts
+- 125g ground hazelnuts
 - 45g cocoa powder
 - 60g flour
 
